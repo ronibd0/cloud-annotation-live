@@ -1,0 +1,1 @@
+All rights @Ronibd0
